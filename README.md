@@ -1,1 +1,0 @@
-# MNMSA-FTC
